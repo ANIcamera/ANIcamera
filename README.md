@@ -1,5 +1,5 @@
 ## Olá👋, eu me chamo Ana, prazer em conhecer vocês!😘💋
-![image](https://github.com/user-attachments/assets/38f06559-05c0-44ad-a96f-5ffe118d897a)
+![](https://media1.tenor.com/m/ehlY_E-SD7kAAAAd/gera-sebo-aesthetic.gif)
 
 -Eu tenho 2 cachorros🦮;
 
