@@ -3,5 +3,5 @@
 
 -Eu tenho 2 cachorros🦮;
 
--1 irmão🧒🧔‍♂;
-![](https://media1.tenor.com/m/ehlY_E-SD7kAAAAd/gera-sebo-aesthetic.gif)
+![](https://media1.tenor.com/m/4Ry5lsNDge4AAAAC/raquelzinha-xililim-turminha-do-a%C3%A7afr%C3%A3o-bondoso.gif)
+-1 irmão🧒;
